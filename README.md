@@ -1,1 +1,0 @@
-# letychiv_top
